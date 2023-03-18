@@ -1,5 +1,5 @@
 # College
-I am attending the university of Missouri to get and agribusiness management degree. I want to be able  
+I am attending the **University of Missouri** to get and agribusiness management degree. I want to be able  
 to use this degree to help on our farm and help my brothers run our produce business. But, while getting  
 this degree I want to explore other careers and classes in college to broaden my knowledge and confirm  
 that agribusiness is the degree that I want.  
